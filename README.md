@@ -1,4 +1,4 @@
 
 <p  align="center"  ><img  src="https://i.imgur.com/BIEG730.png"  width = "400"  height = "200"/></p>
 
-𝑵𝒐𝒘 𝒚𝒐𝒖 𝒉𝒂𝒗𝒆 𝒕𝒉𝒆 𝒔𝒖𝒑𝒆𝒓𝒑𝒐𝒘𝒆𝒓, 𝑰 𝒉𝒐𝒑𝒆 𝒚𝒐𝒖 𝒘𝒊𝒍𝒍 𝒖𝒔𝒆 𝒊𝒕 𝒕𝒐 𝒈𝒐 𝒐𝒖𝒕 𝒚𝒐𝒏𝒅𝒆𝒓 𝒂𝒏𝒅 𝒎𝒂𝒌𝒆 𝒍𝒊𝒇𝒆 𝒃𝒆𝒕𝒕𝒆𝒓 𝒇𝒐𝒓 𝒚𝒐𝒖𝒓𝒔𝒆𝒍𝒇 𝒂𝒏𝒅 𝒂𝒍𝒔𝒐 𝒐𝒕𝒉𝒆𝒓 𝒑𝒆𝒐𝒑𝒍𝒆.
+""Now you have the superpower, I hope you will use it to go out yonder and make life better for yourself and also other people."" - Andrew ng
